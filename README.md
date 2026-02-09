@@ -25,7 +25,7 @@ Vanderbilt University Medical Center (VUMC)
 
 
 
-## THE NEW RELEASE UPLOADED ON DECEMBER 2025 (ZIPPED FILES)
+## THE NEW RELEASE UPLOADED ON DECEMBER 2025 (CLICK the latest version in ZIPPED FILES)
 
 
 
